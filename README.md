@@ -1,0 +1,1 @@
+# Photobooth.3rut
